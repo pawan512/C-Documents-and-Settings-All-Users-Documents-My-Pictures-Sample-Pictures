@@ -1,0 +1,1 @@
+# C-Documents-and-Settings-All-Users-Documents-My-Pictures-Sample-Pictures
